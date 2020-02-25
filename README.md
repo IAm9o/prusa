@@ -6,7 +6,7 @@
 - Krstian P
 - Viktor S
 - Hassan
-- Vegar uten D Straume
+- Vegar uten D Straume to
 - Viet
 
 
